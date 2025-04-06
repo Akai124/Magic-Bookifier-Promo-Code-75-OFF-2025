@@ -1,4 +1,4 @@
-# **🔥 Magic Bookifier Promo Code: 75% OFF (Lifetime Deal!)**  
+#  Magic Bookifier Promo Code: 75% OFF Lifetime Deal!
 
 🚀 **LIMITED-TIME OFFER:** Get **75% OFF** Magic Bookifier’s **Lifetime Deal**! **Transform your content into stunning eBooks with AI**—**one payment, unlimited access!**  
 
